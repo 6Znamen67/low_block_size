@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is 6Znamenshchikov#0296
+
 # Chain Reorganized block agent
 
 ## Описание
